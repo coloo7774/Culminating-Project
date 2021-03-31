@@ -1,5 +1,5 @@
 # Culminating-Project
-fbhgpruie9fhpui9g
- 
-“Have I not commanded you? Be strong and courageous. Do not be frightened, and do not be dismayed, for the LORD your God is with you wherever you go.” — Joshua 1:9
-
+#1 victory royale yea fornite we bout to get down (get down)
+10 kills on the board right now just wiped out tomato town
+my friend just got downed i just revived him now were heading south bound
+nw were in the pleasent parks street look at the map
